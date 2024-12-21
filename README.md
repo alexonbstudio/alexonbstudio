@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alexonbstudio
-- 👀 I’m interested in new tech, developping website and crypto DeFi
+- 👀 I’m interested in new tech, developping website and (crypto invest)
 - 🌱 I’m currently learning all days
 - 💞️ I’m looking to collaborate on everything maybe
 - 📫 How to reach me on my website have contact form to contact me what ever with also some social network
